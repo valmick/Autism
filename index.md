@@ -22,6 +22,22 @@ title: Notes on Autism
    him a lot of time to get to know someone to be able to mingle
    with that person
 
+# Progress
+## 24-Mar-2021 : Starting on N's activities
+We are not being proactive, of-course we fall in the survival
+category. I think the scale of the problem hasn't dawned on us yet.
+We need to buck up. We are vocalizing a lot more than before. 
+
+Sometimes when I repeat the names by pointing at it, I loose N's
+attention. 
+
+<mark>Go! I am trying that.</mark> Putting him on my lap then point
+at it
+
+
+
+
+
 # Trials and Errors
 Document what all we can try and what progress N makes. 
 
